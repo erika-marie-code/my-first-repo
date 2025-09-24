@@ -15,4 +15,4 @@ I love anything related to psychology and holistic emotional wellness. Creating 
 
 Check out my work by visiting my [Instagram account](instagram.com/easentialhealing).
 
-Check out my professional evolution via my [LinkedIn profile.](https://www.linkedin.com/in/erikaortizpaterson/}
+Check out my professional evolution via my [LinkedIn profile](https://www.linkedin.com/in/erikaortizpaterson/).
