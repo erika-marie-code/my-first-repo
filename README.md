@@ -14,4 +14,5 @@ I am currently a small business owner and decided I wanted to take my ***website
 I love anything related to psychology and holistic emotional wellness. Creating connections is my passion; I enjoy learning and working on becoming the best and most expressed version of myself.
 
 Check out my work by visiting my [Instagram account](instagram.com/easentialhealing).
-Check out my professional evolution via my [LinkedIn profile](https://www.linkedin.com/in/erikaortizpaterson/}.
+
+Check out my professional evolution via my [LinkedIn profile.](https://www.linkedin.com/in/erikaortizpaterson/}
